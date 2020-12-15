@@ -1,1 +1,0 @@
-# Techqueto (Sample Work)
